@@ -1,5 +1,5 @@
 👋 Hi, I’m @SoupGuyy
-👀 I’m interested in aviation, simulation, and creating cinematic experiences in MSFS.
+👀 I’m interested in aviation, simulation, and creating cinematic experiences in MSFS. Here is my YT Channel @SoupGuyy
 🌱 I’m currently learning advanced editing techniques for MSFS cinematics.
 💞️ I’m looking to collaborate on MSFS mods, liveries, or cinematic trailers.
 📫 How to reach me: nickteague738@gmail.com
